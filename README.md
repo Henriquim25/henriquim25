@@ -5,6 +5,6 @@
 - 👯 I’m looking to collaborate on 
 - 🤔 I’m looking for help with ROCKETSEAT
 - 💬 Ask me about ...
-- 📫 How to reach me: henriquim25@yahoo.com.br
+- 📫 How to reach me: https://www.linkedin.com/in/henrique-damasceno-32a64720b/
 
 
